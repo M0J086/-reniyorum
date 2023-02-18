@@ -1,0 +1,2 @@
+# -reniyorum
+patika
